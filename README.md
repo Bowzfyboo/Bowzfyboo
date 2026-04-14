@@ -3,7 +3,7 @@
 
 art credits - Miffyforwill [ ON TWITTER :
 _____________________________________________________________________________________________________________________________________________ 
-                                                                      DISCLAMIER ; This account is ONLY for pony town
+                                                              DISCLAMIER ; This account is ONLY for pony town
                                                    
                                                     Welcome my peasants...
                                                   Your local Boosfer lover,
