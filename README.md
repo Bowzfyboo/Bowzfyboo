@@ -26,3 +26,24 @@ ________________________________________________________________________________
 . 🏳️‍🌈SEXUALITY . Pansexual - Fictosexual - Lesbiannnn
 
 . 👨‍👩‍👧‍👦 FAMILY[not irl] . @StormikStormovich - @EverLastingSunshine - @toxitivitives[not sure if i spelled it right] - i have 2 more but they dont got github, js check @EverLastingSunshine for the other 2 ok?
+
+<img width="1036" height="541" alt="image" src="https://github.com/user-attachments/assets/982b4ad8-6bb6-45d1-836a-9aeff1de0b1f" />
+
+
+                                      
+                                      lalalalala lelelelele lololololo
+
+_____________________________________________________________________________________________________________________________________________
+
+                                               Ponies i usually use!!
+
+<img width="375" height="275" alt="image" src="https://github.com/user-attachments/assets/17f6a21e-3859-4cd7-aeba-d1297e6ba37b" /> <img width="395" height="294" alt="image" src="https://github.com/user-attachments/assets/c3a71024-dc16-413e-8519-969e2562e6dc" />
+
+
+  ______________________________________________________________________________________________________________________________________________
+
+  Psst hey... Join my friends pizzapunch discord serv, check my 2nd social.. ok? ok bye.
+
+
+                                              dododododododododododododo
+                                              
