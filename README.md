@@ -1,5 +1,5 @@
-                                                      inversion duououououo
-<img width="679" height="587" alt="image" src="https://github.com/user-attachments/assets/5ad74f4a-984e-493c-898a-9f0fbd6b01b8" /> Wemmy and Boosfyyyy
+
+<img width="679" height="587" alt="image" src="https://github.com/user-attachments/assets/5ad74f4a-984e-493c-898a-9f0fbd6b01b8" />
 
 art credits - Miffyforwill [ ON TWITTER :
 _____________________________________________________________________________________________________________________________________________ 
@@ -8,8 +8,8 @@ ________________________________________________________________________________
                                                     Welcome my peasants...
                                                   Your local Boosfer lover,
                                                         ꒦︶Milk!꒷꒦
-                                                i put so many pics here gulp..
 
+                                                
 . ⛔ DNI LIST . Basic DNI criteria - Nazis - Stormik/j - Weirdos - People who constantly beg for attention - Freaky ponies - homos
 
 . ℹ️ INFO . Hi! My names Milk, you can also call me boo if you want, tho most people call me as Milk. I allow sharing my yumes, i would LOVE to see people who also yumeship my yumes lelll. I am in multifandoms too! I love when people C+H me, so i encourage you to do so!! I am mostly afk, so sorry if i ignore you]:
@@ -36,11 +36,6 @@ if im with my friends, ight side of baketry near lakes aka tadc and md fandom
 
 
 
-<img width="313" height="317" alt="image" src="https://github.com/user-attachments/assets/f29dfc1c-07dc-40e2-bbf0-3b621ce82e0c" />SULLY WYM COMPLICATED??
-
-                                      
-                                         lalalalala lelelelele lololololo
-
 _____________________________________________________________________________________________________________________________________________
 
                                                Ponies i usually use!!
@@ -62,5 +57,5 @@ ________________________________________________________________________________
   Psst hey... Join my friends pizzapunch discord serv, check my 2nd social.. ok? ok bye.
 
 
-                                              dododododododododododododo
+                                           lalalallalala
                                               
