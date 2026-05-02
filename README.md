@@ -18,7 +18,7 @@ ________________________________________________________________________________
 
 . ❤️‍🔥 YUMES[hypersharing] . Angeldust - Elliot - Sprout
 
-. 🎂 BIRTHDAY . janurary 8 20[REDACTED]
+. 🎂 BIRTHDAY . janurary 8 20[NOPE]
 
 . 🕒 TIME . GST
 
