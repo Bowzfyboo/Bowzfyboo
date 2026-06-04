@@ -1,59 +1,7 @@
 
-<img width="679" height="587" alt="image" src="https://github.com/user-attachments/assets/5ad74f4a-984e-493c-898a-9f0fbd6b01b8" />
-
-art credits - Miffyforwill [ ON TWITTER :
-_____________________________________________________________________________________________________________________________________________ 
-                                                              DISCLAMIER ; This account is ONLY for pony town
-                                                   
-                                                   Welcome my peasants...
-                                                  Your local Boosfer fan,
-                                                        ꒦︶Milk!꒷꒦
-                            Pansexual - Fictosexual - Hypersexual - ED - Dissociative Amnesia
-                                                
-. ⛔ DNI LIST . Basic DNI criteria - Nazis - Stormik/j - Weirdos - People who constantly beg for attention - Freaky ponies - homos - boundary breakers - racists - ableist
-
-. ℹ️ INFO . Hi! My names Milk, you can also call me boo or bowzie if you want. I allow sharing my yumes, i would LOVE to see people who also yumeship my yumes lelll. I am in multifandoms too! I love when people C+H me, so i encourage you to do so!!
-
-. ℹ️ BYI . I am mostly afk, so sorry if i ignore you]: I do not accept random friend requests, i must atleast talk to you or know you first. You may see me disappearing alot, its just my internet acting up whenever i switch tabs:/ I am a semi not verbal person, i may interact dryly at first; but when i get more comfortable, well i go to my actual self. I dont use tonetag much, just please; tell me if you're uncomfortable. I will shut the fuck up.
-
-. ❤️ LIKES . My family - BESTfriends - My friends pizzapunch discord server - My yumes
-
-. ❤️‍🔥 YUMES[hypersharing] . Angeldust - Elliot - Sprout
-
-. 🎂 BIRTHDAY . janurary 8 20[--]
-
-. 🏳️ COUNTRY . Philippines, but i live a different country..
-
-. 📌 WHERE YOU CAN FIND ME . below right bottom main entrance of bakery near tree leaves <img width="739" height="452" alt="image" src="https://github.com/user-attachments/assets/6e3d1936-649d-4623-b173-8cdeba9db72e" />
-if not there, either offline or in other spots with diff skins
-
-. 👨‍👩‍👧‍👦 FAMILY[not irl] . @StormikStormovich - @everlastingsunshine - @toxitivities - i have 2 more but they dont got github, js check @everlastingsunshine for the other 2 ok?
-
-<img width="1036" height="541" alt="image" src="https://github.com/user-attachments/assets/982b4ad8-6bb6-45d1-836a-9aeff1de0b1f" />
+<p align="center"><img width="666" height="448" alt="image" src="https://github.com/user-attachments/assets/83f4b1d5-97dc-4e31-8d06-553893e3ba81" />
 
 
-
-
-_____________________________________________________________________________________________________________________________________________
-
-                                               Ponies i usually use!!
-
-<img width="375" height="275" alt="image" src="https://github.com/user-attachments/assets/17f6a21e-3859-4cd7-aeba-d1297e6ba37b" /> <img width="395" height="294" alt="image" src="https://github.com/user-attachments/assets/c3a71024-dc16-413e-8519-969e2562e6dc" />
-
-
-                                              My previous names so far  
-                                              
-Sp0iledM1lk
-
-Boosfyboosferrrr
-
-BoosferBusters
-
-Boosfyboo
-______________________________________________________________________________________________________________________________________________
-
-  Psst hey... Join my friends pizzapunch discord serv, check my 2nd social.. ok? ok bye.
-
-
-                                           lalalallalala
-                                              
+aart credits - cloudycloudye
+_________________________________________________________________________________________________________________________________________
+                                            
