@@ -1,7 +1,10 @@
 
-<p align="center"><img width="666" height="448" alt="image" src="https://github.com/user-attachments/assets/83f4b1d5-97dc-4e31-8d06-553893e3ba81" />
+<p align="center"><img width="1080" height="727" alt="image" src="https://github.com/user-attachments/assets/42a599ee-ce6b-4b4e-99df-48e0cf4e750b" />
 
+![Typing SVG](https://readme-typing-svg.demolab.com/?duration=2000&color=85de92&lines=Picture+your+planet,;In+disharmony..;Jump+into+the+night!;Cause+I+can+smell+the+trouble;Dont+you+miss+the+fight,;Just+get+there+on+the+double;I+gotta+make+a+difference,;Im+moving+with+a+purpose,;Im+feeling+my+INERTIA;+INERTIA;INTERTIA!)
 
 art credits - cloudycloudye
+
+: idk whats the name of the artist who made the nametag thing, please let me know! ] 
 _________________________________________________________________________________________________________________________________________
                                             
